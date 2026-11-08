@@ -1,3 +1,3 @@
-[ATABOOK](https://threeinteger.atabook.org/)
+[ATABOOK](https://aubergine.atabook.org/)
 
 redoing this i guess lol
