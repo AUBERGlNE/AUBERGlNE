@@ -10,3 +10,5 @@
 GO TO MY [PRONOUNS.CC](https://pronouns.cc/@missfossilian) TO SEE MY BYI AND DNI
   
 SIGN MY [ATABOOK](https://aubergine.atabook.org/) ! !ㅤ꒱
+
+<img src="https://i.postimg.cc/YCfd28V7/Tumblr-l-2516482484153433.gif"/> <br><br>
