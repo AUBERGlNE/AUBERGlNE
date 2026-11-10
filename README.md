@@ -3,8 +3,10 @@
 <div align="center"/>
 <img src="https://i.postimg.cc/HnGNcFsX/Noelle-Holiday-(1).webp"/> <br><br>
      <br>
-  NOELLEㅤ +ㅤ AUBREYㅤ +ㅤ SHELLY
+  ꒰ㅤNOELLEㅤ +ㅤ AUBREYㅤ +ㅤ SHELLY
+
+6TEENㅤ+ㅤHEAVY FICTKINㅤ+ ㅤINTROVERT
+
+GO TO MY [PRONOUNS.CC](https://pronouns.cc/@missfossilian) TO SEE MY BYI AND DNI
   
-6TEENㅤㅤHEAVY FICTKINㅤ+ ㅤINTROVERT
-  
- [ATABOOK](https://aubergine.atabook.org/)
+SIGN MY [ATABOOK](https://aubergine.atabook.org/) ! !ㅤ꒱
