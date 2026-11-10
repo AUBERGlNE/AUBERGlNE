@@ -3,7 +3,8 @@
 <div align="center"/>
 <img src="https://i.postimg.cc/HnGNcFsX/Noelle-Holiday-(1).webp"/> <br><br>
      <br>
-</div> 
-<div align="center"/>
+  NOELLEㅤ +ㅤ AUBREYㅤ +ㅤ SHELLY
   
-  [ATABOOK](https://aubergine.atabook.org/)
+6TEENㅤㅤHEAVY FICTKINㅤ+ ㅤINTROVERT
+  
+ [ATABOOK](https://aubergine.atabook.org/)
